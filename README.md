@@ -1,12 +1,65 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?font=Merriweather&color=FF7F00&center=true&lines=I+am+you,+and+you+are+me.;I'll+leave+you+one+last+thing.;Destroy+Everything.;Everything,+okay?)](https://git.io/typing-svg)
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/6a871a8c-c4b2-4025-94d6-e1de1a86f9d3" />
+<sup>All graphics made by @crwyptid on Tumblr!</sup>
+<img width="1280" height="720" alt="Gourdy Header" src="https://github.com/user-attachments/assets/65143dbf-a7ca-43be-9ce2-69c7e8663a40" />
+>[!CAUTION]
+>This user is considered problematic! Interact at your own risk!
 
-  Ꮚ     ponytown-specific info!  ⨟ 
+<p align="center"><i>Boo! Did I scare you?</i> 
+<br>꒰ა ⠀ <ins>eris</ins> ⠀ ໒꒱ 
+<br>◡ᐩ ︶◟⠀⠀⠀ྀི⠀⠀⠀◞︶ᐩ◡ 
+<br>𓏵⠀⠀<ins>darkshipper</ins>   <i>&</i>   <ins>shotacon</ins>⠀⠀𓏵  
+<br> ⑅⠀⠀they   /   bite   /   vamp⠀⑅     
+<br> ﹌﹌﹌﹌﹌﹌ 
+<br>꒰ა Interact with extreme caution ໒꒱ 
+<br>꒰ა Looking for friends! I promise I'm nice! ໒꒱ 
+<br>◡ᐩ ︶◟⠀⠀⠀ྀི⠀⠀⠀◞︶ᐩ◡
+</p>
 
-⇨⠀ ⠀ﾉ I LOVE CUDDLING!!! I am looking for cuddlemates who are online often/willing to sit and do nothing for hours...
+<img width="1000" height="30" alt="image" src="https://github.com/user-attachments/assets/5e5dbde3-4f43-4325-8d40-f68f468c5c0e" />
 
-⇨⠀ ⠀ﾉ ALWAYS whisper2interact! I'm almost always offtab or doing something else!
+<details>
+ <summary>DNI</summary>
+  <ul>
+   <li>T.R.A.S.H</li>
+   <li>Xenosatanists</li>
+   <li>-13</li>
+   <li>Pro-c</li>
+   <li>Antis</li>
+  </ul>
+</details>
 
-⇨⠀ ⠀ﾉ I don't like to have my skin hidden unless I do so myself!
+<details>
+  <summary>Yumes</summary>
+   <dl>
+    <dt>Gourdy (Dandy's World)</dt>
+     <dd>Hypersharing</dd>
+    <dt>Mawile (Pokemon)</dt>
+     <dd>Nonsharing</dd>
+    <dt>Derpy (MLP)</dt>
+     <dd>Selective Sharing</dd>
+    <dt>Susie (Deltarune)</dt>
+     <dd>Nonsharing</dd>
+   </dl>
+</details>
 
-𐔌 ⊹ ˙ 　　　　　︵︵ 
+<details>
+ <summary>Socials</summary>
+  <ul>
+   <li>Discord: vv4mpexx</li>
+   <li>TikTok: shotaslobber</li>
+   <li>Twitter: shotaslobber</li>
+   <li>Instagram: vampexxyy</li>
+  </ul>
+</details>
+
+<p align="center">
+ <br> Ꮚ     ponytown-specific info!  ⨟ 
+<br>⇨⠀ ⠀ﾉ I LOVE CUDDLING!!! I am looking for cuddlemates who are online often/willing to sit and do nothing for hours...
+<br>⇨⠀ ⠀ﾉ ALWAYS whisper2interact! I'm almost always offtab or doing something else!
+<br>⇨⠀ ⠀ﾉ I don't like to have my skin hidden unless I do so myself!
+<br>𐔌 ⊹ ˙ 　　　　　︵︵ 
+<br>
+ <br>Status meanings; 
+<br>🟢-PLEASE INT!!! 
+<br>🌙-Offtab or just chilling! 
+<br>⛔-distracted with something! PLEASE feel free to interact still, but expect slow responses!
+</p>
