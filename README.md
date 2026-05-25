@@ -80,3 +80,9 @@
 </p>
 
 <img width="1000" height="30" alt="image" src="https://github.com/user-attachments/assets/5e5dbde3-4f43-4325-8d40-f68f468c5c0e" />
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=weuk7sv4zl7ktomefehngvom4&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=weuk7sv4zl7ktomefehngvom4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=4e1164&interchange=true&profanity=false&hide_remaster=false&mode=dark&bar_color=ea8f15&bar_color_cover=true">
+  </a>
+</p>
