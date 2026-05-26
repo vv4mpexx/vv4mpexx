@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?vv4mpexx&color=orange&align=center)
+
 <sup>All graphics made by @crwyptid on Tumblr!</sup>
 <img width="1280" height="720" alt="Gourdy Header" src="https://github.com/user-attachments/assets/65143dbf-a7ca-43be-9ce2-69c7e8663a40" />
 >[!CAUTION]
@@ -83,6 +85,6 @@
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=weuk7sv4zl7ktomefehngvom4&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=weuk7sv4zl7ktomefehngvom4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=4e1164&interchange=true&profanity=false&hide_remaster=false&mode=dark&bar_color=ea8f15&bar_color_cover=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=weuk7sv4zl7ktomefehngvom4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=e87a17&bar_color_cover=true&mode=dark">
   </a>
 </p>
