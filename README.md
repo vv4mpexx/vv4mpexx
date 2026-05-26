@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?vv4mpexx&color=orange&align=center)
+![](https://komarev.com/ghpvc/?vv4mpexx&color=orange)
 
 <sup>All graphics made by @crwyptid on Tumblr!</sup>
 <img width="1280" height="720" alt="Gourdy Header" src="https://github.com/user-attachments/assets/65143dbf-a7ca-43be-9ce2-69c7e8663a40" />
