@@ -1,11 +1,11 @@
-![](https://komarev.com/ghpvc/?vv4mpexx&color=orange)
+<p align="center">
+  <img src="https://64.media.tumblr.com/50717c3927405256f36dd27e2f14622a/6344678eade65fe8-9e/s540x810/2dbd9340d5dfa7d142496db8778991a6169a25ae.gifv" alt="animated" />
+</p>
 
-<sup>All graphics made by @crwyptid on Tumblr!</sup>
-<img width="1280" height="720" alt="Gourdy Header" src="https://github.com/user-attachments/assets/65143dbf-a7ca-43be-9ce2-69c7e8663a40" />
 >[!CAUTION]
 >This user is considered problematic! Interact at your own risk!
 
-<p align="center"><i>$\color{#F28C28}{"Boo!~Did~I~scare~you?"}$</i> 
+<p align="center">
 <br>꒰ა ⠀ <ins>eris</ins> ⠀ ໒꒱ 
 <br>◡ᐩ ︶◟⠀⠀⠀6TEEN⠀⠀⠀◞︶ᐩ◡ 
 <br>𓏵⠀⠀<ins>darkshipper</ins>   <i>&</i>   <ins>shotacon</ins>⠀⠀𓏵  
@@ -61,7 +61,7 @@
 <details>
  <summary>Socials</summary>
   <ul>
-   <li>Discord: vv4mpexx</li>
+   <li>Discord: kittenslobber (main is hacked)</li>
    <li>TikTok: shotaslobber</li>
    <li>Twitter: shotaslobber</li>
    <li>Instagram: vampexxyy</li>
@@ -79,9 +79,10 @@
 <br>🟢-PLEASE INT!!! 
 <br>🌙-Offtab or lazing about! 
 <br>⛔-Unable to respond OR slow responses!
+ 
 </p>
 
-<img width="1000" height="30" alt="image" src="https://github.com/user-attachments/assets/5e5dbde3-4f43-4325-8d40-f68f468c5c0e" />
+<img width="2048" height="185" alt="image" src="https://64.media.tumblr.com/98a1a41a793227d04ff07d99d817f72e/1e7449a8764064ec-ed/s2048x3072/0f57254337b66da24603b5c24e51ca6b74ce2eda.pnj" />
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=weuk7sv4zl7ktomefehngvom4&redirect=true">
