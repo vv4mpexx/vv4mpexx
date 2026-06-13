@@ -62,7 +62,7 @@
 <details>
  <summary>Socials</summary>
   <ul>
-   <li>Discord: kittenslobber (main is hacked)</li>
+   <li>Discord: vv4mpexx (main is back)</li>
    <li>TikTok: shotaslobber</li>
    <li>Twitter: shotaslobber</li>
    <li>Instagram: vampexxyy</li>
