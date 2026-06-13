@@ -63,6 +63,9 @@
  <summary>Socials</summary>
   <ul>
    <li>Discord: vv4mpexx (main is back)</li>
+      <ul>
+        <li><a href="https://discord.gg/b2qRbMYTFH">Link to my deadtoons server</a></li>
+      </ul>
    <li>TikTok: shotaslobber</li>
    <li>Twitter: shotaslobber</li>
    <li>Instagram: vampexxyy</li>
