@@ -37,7 +37,7 @@
 <details>
  <summary>DNI</summary>
   <ul>
-   <li>T.R.A.S.H</li>
+   <li>T.R.A.S.H.</li>
    <li>Xenosatanists</li>
    <li>-13</li>
    <li>Pro-c</li>
