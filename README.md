@@ -1,6 +1,6 @@
 <p align="center">
   <img src="https://media.discordapp.net/attachments/1515170880521764915/1515430126899298455/Untitled1630_20260613135707.png?ex=6a2ef9c9&is=6a2da849&hm=6004a05fa1fccd7291c42b4a70fa7fc3d778ec6bbe536dc59d8dd1b0fe8e3170&=&format=webp&quality=lossless&width=2000&height=576" />
-  <sup>art by <a href="https://github.com/labsenct">@labsenct</a> licks you</sup>
+  <sup>art/graphic by <a href="https://github.com/labsenct">@labsenct</a> licks you</sup>
 </p>
 
 >[!CAUTION]
