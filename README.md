@@ -1,5 +1,6 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/50717c3927405256f36dd27e2f14622a/6344678eade65fe8-9e/s540x810/2dbd9340d5dfa7d142496db8778991a6169a25ae.gifv" alt="animated" />
+  <img src="https://media.discordapp.net/attachments/1515170880521764915/1515430126899298455/Untitled1630_20260613135707.png?ex=6a2ef9c9&is=6a2da849&hm=6004a05fa1fccd7291c42b4a70fa7fc3d778ec6bbe536dc59d8dd1b0fe8e3170&=&format=webp&quality=lossless&width=2000&height=576" />
+  <sup>art by <a href="https://github.com/labsenct">@labsenct</a> licks you</sup>
 </p>
 
 >[!CAUTION]
@@ -81,8 +82,6 @@
 <br>⛔-Unable to respond OR slow responses!
  
 </p>
-
-<img width="2048" height="185" alt="image" src="https://64.media.tumblr.com/98a1a41a793227d04ff07d99d817f72e/1e7449a8764064ec-ed/s2048x3072/0f57254337b66da24603b5c24e51ca6b74ce2eda.pnj" />
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=weuk7sv4zl7ktomefehngvom4&redirect=true">
